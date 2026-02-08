@@ -1,0 +1,2 @@
+# c5037047-f553-418c-9787-03a828df9a5b-hero-3
+Hero section variant 3 for c5037047-f553-418c-9787-03a828df9a5b
